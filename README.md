@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @teddy2606
+- 👋 Hi, I’m pragati
 - 👀 I’m interested in blockchain
 - 🌱 I’m currently learning cyber security
 - 💞️ I’m looking to collaborate on ...
